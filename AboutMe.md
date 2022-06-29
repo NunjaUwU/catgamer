@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nunja
-- 👀 I’m non binary and Bi-Sexuel, i’m interested in Drawing, Gaming, Sleeping, Eating, Anime and Programming(but im not realy good in it)
+- 👀 I’m interested in Drawing, Gaming, Sleeping, Eating, Anime and Programming(but im not realy good in it)
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on Game and Software Development
 - 📫 my Discord: Ninja#5777
